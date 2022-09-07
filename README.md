@@ -1,1 +1,10 @@
 # health-blog
+
+### Intention
+I want to get my Heroic (or Optimize) Coach certification. I want to use this blog to track my journey and keep me accountable towards consuming the wisdom and being consistent with the habits that will get me the certification. As a side effect, I hope to be an exemplar, inspire trust, and inspire action. 
+
+What is the Heroic Coach certification? Why do I want to get this Heroic Coach certification? The Heroic Coach certification is a demanding program. Its purpose is to bring out the best in its participants so they can serve and give the world their best. The program requires you to consume the wisdom in their app -- condensations and compilations of scientific and wisdom literature, as well as consistently act on the habits they deem fundamental to your flourishing. The content is designed to educate and inspire action, many accompanied by a worksheet or a workbook with prompts to gain self-awareness, brainstorm actions, and apply the wisdom to your own life. The habits are as follows (from https://intercom.help/heroic/en/articles/4534240-how-can-i-make-sure-that-i-earn-a-heroic-coach-certification):
+
+![image](https://user-images.githubusercontent.com/103172182/188986074-bf17839b-c699-4d37-b625-59dd3e95315b.png)
+
+I want to gain the Heroic Coach certification because I want to give the world my best. I want to be an exemplar for my family. I want to flourish. I've gotten a taste of this direction, and it feels amazing. I lived with anxiety for 7 years since I was 16, and when I have implemented the sleep protocol Heroic/Optimize outlines, I feel so much more energetic, more positive, and my mind and eyesight became clearer. The huge contrast between this, and having lived in a tiresome, anxious fog for 7 years blew my mind. What was just an idea now had roots in my experience. Along with other experiences, such as feeling much happier after three months of meditating at least 10 minutes a day, and losing 6 kgs after 2 months of cutting out added sugars, my curiosity grew... How good can I feel?
